@@ -13,7 +13,6 @@
 
 - 🌱 I want to learn **blockchain**
 
-- ☪️ Religion: **Islam (Ahli Sunnah)**
 
 </br>
 
